@@ -1,1 +1,1 @@
-yet another stolen webpage.
+another stolen webpage.
