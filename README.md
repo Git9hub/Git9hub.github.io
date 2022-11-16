@@ -1,3 +1,1 @@
-nothing to read
-
-go away, stranger.
+yet another stolen webpage.
